@@ -1,1 +1,3 @@
 <h2><strong><a href="https://eventprime.co/o/ShapeUpDietCapsules" target="_blank" rel="noopener">(EXCLUSIVE OFFER) RUSH YOUR ORDER OF Shape Up Diet Capsules</a></strong></h2>
+
+Shape Up Diet Capsules are a top-quality weight-reducing substance manufactured from natural and clinically approved ingredients necessary for the speed-up of fat loss, hunger management, and the extra speed in metabolism. This product is made in factories that are strictly following quality management measures and are under the control of UK health authorities. It’s a product that assists you at the right root points of the problem – still, slow metabolism, strong cravings, and a weak oxidizing system are the culprits of obesity in most of us.
